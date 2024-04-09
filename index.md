@@ -14,8 +14,10 @@ Con más de 20 años de experiencia en senderismo y 15 en escalada, cada día di
 🪪 Miembro de la AEGM y FBME <br>
 🦋 Biólogo apasionado <br>
 <br>
-💬 Actividades en 🇪🇸 Castellano, 🇬🇧 English, Mallorquí <br>
-💬 Conversaciones en 🇫🇷 Français, 🇬🇷 Ελληνικά, Euskera
+💬 Actividades en<br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;🇪🇸 Castellano, 🇬🇧 English, Mallorquí <br>
+💬 Conversaciones en<br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;🇫🇷 Français, 🇬🇷 Ελληνικά, Euskera
 
 * * *
 
