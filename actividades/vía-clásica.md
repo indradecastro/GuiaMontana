@@ -24,4 +24,4 @@ Te invito a escalar una pared de roca en la que apenas encontraremos unos pocos 
 *	🅿️ Enviaré la ubicación del parking donde nos encontraremos
 
 ### Ejemplos:<br>
-Albahida, Esperó des Plà, Agulla des Frare, Pepe Ramón, Rectal
+Albahida, Esperó des Plà, Agulla des Frare, Pepe Ramón
