@@ -11,8 +11,12 @@ layout: default
 Con más de 20 años de experiencia en senderismo y 15 en escalada, cada día disfruto más de acompañar a otros a la montaña!
 
 📜 Titulado como Guía de Escalada <br>
-🪪 Miembro de la AEGM y FBME <br>
+🪪 Guía AEGM (Nº 2041)<br>
 🦋 Biólogo apasionado <br>
+<br>
+🏥 Seg. Acc: OM-MIC (ESDV2100035)<br>
+⚖️ Seg. RC: Berkley (PIJ150CKI534)<br>
+🏷 Turismo Activo (en proceso)<br>
 <br>
 💬 Actividades en<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;🇪🇸 Castellano, 🇬🇧 English, Mallorquí <br>
