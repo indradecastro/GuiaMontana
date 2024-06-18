@@ -16,7 +16,7 @@ Con más de 20 años de experiencia en senderismo y 15 en escalada, cada día di
 <br>
 🏥 Seg. Acc: OM-MIC (ESDV2100035)<br>
 ⚖️ Seg. RC: Berkley (PIJ150CKI534)<br>
-🏷 Turismo Activo (en proceso)<br>
+🏷 Turismo Activo (TA/122)<br>
 <br>
 💬 Actividades en<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;🇪🇸 Castellano, 🇬🇧 English, Mallorquí <br>
